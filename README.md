@@ -8,7 +8,7 @@
 
 - How to reach me **bibithavr@gmail.com**
 
-- 📄 Know about my experiences [click_here](../../../../../../bbtha.github.io)
+- 📄 Know about my experiences [click_here](htps://bbtha.github.io)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
