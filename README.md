@@ -4,11 +4,11 @@
 
 - Currently learning **Networking , Vulnerability Assesment & Penetration testing**
 
-- looking forward to collaborate on **Penetration testing based projects**
+- Looking forward to collaborate on **Penetration testing based projects**
 
 - How to reach me **bibithavr@gmail.com**
 
-- 📄 Know about my experiences [click_here](https://bbtha.github.io)
+- To know more about me [**click_here**](https://bbtha.github.io)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
