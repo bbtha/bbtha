@@ -6,8 +6,6 @@
 
 - Looking forward to collaborate on **Penetration testing based projects**
 
-- How to reach me **bibithavr@gmail.com**
-
 - To know more about me [**click_here**](https://bbtha.github.io)
 
 <h3 align="left">Connect with me:</h3>
